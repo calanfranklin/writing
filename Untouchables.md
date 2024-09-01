@@ -335,7 +335,7 @@ My father laughs. “Don’t I understand that. Go on inside. You well earned it
 
 I turn and look at my mother. Look at my father on the porch. Heart pumping, my skin boiling and red.
 
-_Is that where you were you whore? And where would he be if I__’d lost? Still on this porch? Would either of you even have watched the bus leave?_
+_Is that where you were you whore? And where would he be if I’d lost? Still on this porch? Would either of you even have watched the bus leave?_
 
 “She told you?” I ask.
 
