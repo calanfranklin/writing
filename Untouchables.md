@@ -306,13 +306,15 @@ The engine roars louder and the gear shifts and air hisses and the bus rolls thr
 
 The moderator comes, hands me a ribbon sewn with golden text.  
   
-
+<center>
+  
 VICTORIA ESTERA
 
 VICTOR OF CHARIS
 
 NOVEMBER 2022
 
+</center>
 #
 
 My father sits on the porch. His face lit by a reading light and the dying pink glow of the sun stretching over the mountains. Wind touches the sidewalk, music and barking dogs sound somewhere distant. The walk here was short but long enough for my legs to be sore. Long enough for my mother to not have answered what I asked her.
