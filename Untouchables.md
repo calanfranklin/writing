@@ -383,6 +383,6 @@ I hear the cork popping when I reach the top of the stairs. I go to my room, fal
 
 _Money in my savings account. Five-thousand dollars. Access in a few weeks when I turn eighteen. Leave home, start schooling._
 
-_Leave home, start schooling. Leave home__…_
+_Leave home, start schooling. Leave home_…
 
 Start a new life.
