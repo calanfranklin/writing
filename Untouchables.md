@@ -306,11 +306,11 @@ The engine roars louder and the gear shifts and air hisses and the bus rolls thr
 
 The moderator comes, hands me a ribbon sewn with golden text.  
 
-<center>VICTORIA ESTERA</center>
+VICTORIA ESTERA
 
-<center>VICTOR OF CHARIS</center>
+VICTOR OF CHARIS
 
-<center>NOVEMBER 2022</center>
+NOVEMBER 2022
 
 #
 
